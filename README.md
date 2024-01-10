@@ -25,7 +25,7 @@ Sou bacharela em Publicidade e Propaganda com MBA Executivo em e-commerce, poré
 
 🎤 Adoro cantar. 
           
-😄 Sejam bem vindos(a) ao meu Git, aqui vocês encontram uma pessoa em desenvolvimento profissional e que está em constante evolução profissional. 
+😄 Sejam bem vindos(a) ao meu Git, aqui vocês encontram uma pessoa em desenvolvimento pessoal e que está em constante evolução profissional. 
 
 
 ## Contatos:
