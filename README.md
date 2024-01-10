@@ -15,7 +15,7 @@ Sou bacharela em Publicidade e Propaganda com MBA Executivo em e-commerce, poré
           
           
 
-🛒 Atualmente estou na área do e-commerce.
+🛒 Atualmente trabalho na área do e-commerce.
 
 📚 Tenho estudado: Microsoft Power BI Para Business Intelligence e Data Science, Estatísticas, Machine Learning, Python do Básico ao Avançado, Python Fundamentos Para Análise de Dados. 
 
