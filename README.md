@@ -1,9 +1,3 @@
-## **Nislainy Alves**
-
-
-
-
-
 ## Hello, Scientists!!
 
 Tenho 30 anos, moro em Uberlândia/Minas Gerais e sou apaixonada por Data Science, com um pezinho na programação e amo cachorros! 💜
