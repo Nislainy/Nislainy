@@ -21,7 +21,7 @@ Sou bacharela em Publicidade e Propaganda com MBA Executivo em e-commerce, poré
 
 ⏳ Estou em transição de carreira e me sinto muito mais feliz profissionalmente agora.    
 
-☕ Não sou amante do café, mas um caputtino me deixa feliz. 
+☕ Não sou amante do café, mas um capuccino me deixa feliz. 
 
 🎤 Adoro cantar. 
           
