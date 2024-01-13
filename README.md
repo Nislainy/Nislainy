@@ -20,7 +20,7 @@ src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/jupyter/jupyter-original
 
 📚 Tenho estudado: Programação e Ciência de Dados.
 
-⏳  Estou em transição de carreira e me sinto muito mais feliz.    
+⏳ Estou em transição de carreira e me sinto muito mais feliz.    
 
 ☕ Não sou amante do café, mas um capuccino me deixa feliz. 
 
